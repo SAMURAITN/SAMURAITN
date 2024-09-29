@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SAMURAITN
-- 👀 I’m interested in Devloping
-- 🌱 I’m currently learning Devloping
+- 👀 I’m interested in Devlopping
+- 🌱 I’m currently learning Devlopping
 - 📫 How to reach me join my new discord server " https://discord.gg/ncBGDN9t "
 - 😄 Pronouns: YESSINE
 
